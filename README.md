@@ -1,1 +1,1 @@
-I like working out, church, and boxing. I'm eager to learn coding.# hello-world
+I like working out, God, and boxing. I'm eager to learn coding.# hello-world
